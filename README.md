@@ -1,4 +1,4 @@
-# Workshop_kemjar_042_Saifudin
+# Workshop Keamanan Jaringan
 
 📘 Mata Kuliah : Keamanan Jaringan\
 🙆‍♂️ Nama : Saifudin\
