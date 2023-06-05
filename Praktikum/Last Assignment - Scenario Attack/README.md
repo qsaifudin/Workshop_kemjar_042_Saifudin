@@ -1,1 +1,1 @@
-Sebelumnya mohon maaf jika saya dirasa telat dalam pengumpulan, dikarenakan terdapat kendala pada laptop saya dan diperlukan untuk ke tempat service 🙏
+
